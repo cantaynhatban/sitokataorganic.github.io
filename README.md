@@ -1,1 +1,0 @@
-# sinhtoorganicsitokata.github.io
